@@ -1,2 +1,3 @@
 # beautiful-life
-Ways to beautify life in any way
+
+Life with a taste of peace
